@@ -1,0 +1,2 @@
+# BlackToTheFuture
+Black to the Future is a dynamic and interactive app where users can get out and explore the lengthy and rich history of African Americans in Greater Boston by foot! From the pre-Revolutionary period to the present, Black to the Future brings together and highlight the numerous landmarks, public art, historical buildings, and more of influential Black Bostonians in one convenient place!
